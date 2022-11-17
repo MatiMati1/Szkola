@@ -1,2 +1,0 @@
-# Szkola
-Zadanie ze szkoły
